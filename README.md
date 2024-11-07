@@ -2,7 +2,7 @@
 
 Meu nome é Lorena Portilho Gomes
 
-- Sou apaixonada na banda Kiss e na cantoura Cindy Lauper
+- Sou apaixonada na banda Kiss e na cantora Cindy Lauper
 - Amo café e artesanato
 - Sou mãe de 3 lindos gatinhos
 - Minha cor preferida é 💚
