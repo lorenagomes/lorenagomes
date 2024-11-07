@@ -1,6 +1,6 @@
 ## Boas Vindas ao meu perfil 🌙
 
-Meu nome é Lorena Porilho Gomes
+Meu nome é Lorena Portilho Gomes
 
 - Sou apaixonada na banda Kiss e na cantoura Cindy Lauper
 - Amo café e artesanato
